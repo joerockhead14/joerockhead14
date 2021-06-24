@@ -1,2 +1,4 @@
-- 👋 Hello i Joe Rockhead
-
+- Merhaba ben Joe ROCKHEAD
+- PfdkCty' de yaşıyorum
+- si pLAs plAs we si şArP pUroFeSYonEl düZeYDe biLiyoRuM
+- We pUroGraMMeRiM çok hAwli dEmi 😎
