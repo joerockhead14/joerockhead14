@@ -1,4 +1,4 @@
 - Merhaba ben Joe ROCKHEAD
 - PfdkCty' de yaşıyorum
-- si pLAs plAs we si şArP pUroFeSYonEl düZeYDe biLiyoRuM
-- We pUroGraMMeRiM çok hAwli dEmi 😎
+- si pılas pılas piyaşpi jawa paytın si şarp fln hebsini biliom we rewursur engunerim
+- purogrammer saybır guwenlık uzmani rewursur engınur  sonra dewulupur fln hebsi war
